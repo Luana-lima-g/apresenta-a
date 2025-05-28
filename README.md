@@ -1,1 +1,2 @@
 # apresenta-a
+Oii meu nome Luana De LIma Gonçalves, moro em curiba com a minha mâe e meu pai, tenho dois irmãos de consideração mais vejo eles só nos finais de semana, tenho 15 anos nasci dia 11/12/2009, eu estudo de manhã e estou no primeiro ano do ensino médio, trabalho a tarde com meu tio que faz uniformes esportivos, gosto muito de cachorros tenho 7 e uma gata, minhas materias favoritas sâo historia e português, não gosto muito de matematica porque não entendo, minha melhor amiga se chama lavinia e ela e uma irmã para mim. 
